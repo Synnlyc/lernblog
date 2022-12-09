@@ -19,3 +19,15 @@ Musik begegnet man jeden Tag und in jeder Kultur auf verschiedenste Weise. Egal 
 Wir spielen alle ein Instrument, und die Idee, zusammen Strassenmusik zu machen und mit unserer Musik Freude zu verbreiten, schwebte schon lange in unseren Köpfen. Nach langer Planung haben wir diese Idee nun umgesetzt.  
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+**Vorbereitung auf den Auftritt** 
+
+<!--EndFragment-->
+
+<!--StartFragment-->
+
+In den Wochen vor unserem geplanten Auftritt treffen wir uns mit Simons Cousine und Strassenkünstlerin Claudia Zimmermann, um herauszufinden, was uns als Strassenkünstler erwarten wird. Einer der Hauptpunkte, welchen wir aus dem Gespräch ziehen können, ist, dass der Kontakt zum Publikum viel direkter und ungefilterter ist als beim Vorspielen auf einer Bühne. Wenn den Zuschauer*innen gefällt, was sie sehen oder hören, bleiben sie stehen, wenn es ihnen nicht gefällt, gehen sie weiter. Claudia erwähnt ebenfalls Unterschiede zu Videos im Internet. So sagt sie, dass der Nervenkitzel bei Echtzeitvorstellungen viel grösser sei als bei TikTok-Videos, welche oft gekünstelt und surreal wirken.  
+
+<!--EndFragment-->
